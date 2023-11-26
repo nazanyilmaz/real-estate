@@ -9,8 +9,6 @@
 </p>
 <p>Project gif</p>
 
+![ezgif com-optimize (9)](https://github.com/nazanyilmaz/real-estate/assets/147782488/a720a5b1-8fb5-4b46-9ce6-7bed5b397ca3)
 
-
-
-https://github.com/nazanyilmaz/real-estate/assets/147782488/fd972f5e-fc0b-4c76-9f62-395e3660fbe3
 
